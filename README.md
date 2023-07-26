@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Ghostsdoodles
+- 👀 I’m interested in anime and furry art!
+- 🌱 I’m currently learning best ways to create commisions
+- 💞️ I’m excited to start creating amazing art
+- 📫 How to reach me ... @ghost4lifeeee@gmail.com
+- 🕸️ Thanks for your support! i am a young artist with a big passion!
+- 🕯️ I try to respond as quick as i can!
+- 🎀 I do not take NSFW requests
